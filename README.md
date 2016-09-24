@@ -1,3 +1,3 @@
 ##### charles uses yowsup
 ##### use at your own risk
-##### violation of terms of service
+##### violation of whatsapp's terms of service
